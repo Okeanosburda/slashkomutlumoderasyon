@@ -1,0 +1,2 @@
+# slashkomutlumoderasyon
+LÜTFEN ÇALMAYINIZ !!
